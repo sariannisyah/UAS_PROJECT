@@ -1,3 +1,3 @@
-Ashari Widodo
+Sari Annisyah
 123180173
-Aplikasi Pendataan Penjualan di AshShop
+Aplikasi Pendataan Penjualan SARI
